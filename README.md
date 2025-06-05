@@ -1,2 +1,2 @@
 # puzzless
-for game
+Akuzwe Herve Berthelot Strong
